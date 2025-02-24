@@ -37,6 +37,7 @@ _Details of the prizes will be provided._
 - First Prize: [Details]
 - Second Prize: [Details]
 - Third Prize: [Details]
+- **Every Participant Gets A certificate of Participation!**
 
 
 ## Frequently Asked Questions (FAQs)
